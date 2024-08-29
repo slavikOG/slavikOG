@@ -1,0 +1,3 @@
+- 👋 selem, je suis @slavik
+- 👀 Je suis intéressé par le développement py/js/css/scm
+- 📫 Comment me joindre soit discord @4547422753584 ou sur mon serveur discord lookup 2K24 https://discord.gg/HpJ5avTXNR
